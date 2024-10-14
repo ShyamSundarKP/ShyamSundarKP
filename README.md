@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ShyamSundarKP
+- 👀 I’m interested in Football.
+- 🌱 I’m currently learning Artificial Intelligence Using Machine Learning.
+- 📫 shyazam7@gmail.com
